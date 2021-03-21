@@ -1,3 +1,2 @@
-# THICC TAC TOE
-
-NEW ONLINE MMO
+# rick tac online
+tick tack online
